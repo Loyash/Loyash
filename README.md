@@ -2,7 +2,7 @@
 - 👀 I’m interested in making video games🎮 and web development
 - 🌱 I’m currently learning C++ and python 🐍
 - 💞️ I’m looking to collaborate on .....
-- 📫 How to reach me -instagram ->not_Loyash_Baidhya
+- 📫 How to reach me -instagram ->not_loyash_baidhya
 - 😄 He/Him
 - ⚡ Fun fact: I'm 5'7
 
